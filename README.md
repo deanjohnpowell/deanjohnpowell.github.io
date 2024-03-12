@@ -1,2 +1,0 @@
-# deanjohnpowell.github.io
-portfolio
